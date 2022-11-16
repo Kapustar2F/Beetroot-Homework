@@ -10,3 +10,15 @@ https://docs.google.com/spreadsheets/d/1zhr9i88smGo-pWfgwiAcQwUL4uJ6dQQmfcYzzoku
 
 
 https://docs.google.com/spreadsheets/d/1VokRNXUxVmcc0-0PdQ9YAxdQ5_YlkL3NHVRuAdX0K4A/edit?usp=sharing
+
+
+
+C:\Users\Kapustar\Documents\GitHub\Beetroot-Homework\MyWork\ДЗ урок 17.xlsx
+
+C:\Users\Kapustar\Documents\GitHub\Beetroot-Homework\MyWork\ДЗ урок 16.xlsx
+
+C:\Users\Kapustar\Documents\GitHub\Beetroot-Homework\MyWork\ДЗ Урок 15.xlsx
+
+C:\Users\Kapustar\Documents\GitHub\Beetroot-Homework\MyWork\ДЗ урок 14.xlsx
+
+C:\Users\Kapustar\Documents\GitHub\Beetroot-Homework\MyWork\ДЗ 10 тесткейси.xlsx
